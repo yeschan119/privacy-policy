@@ -23,4 +23,4 @@ This privacy policy is effective as of **July 31, 2025**. Any future changes wil
 ## 6. Contact
 If you have any questions or concerns about this privacy policy, feel free to contact us:
 
-📧 Email: your.email@example.com
+📧 Email: yeschan119@gmail.com
