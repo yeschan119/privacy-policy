@@ -1,5 +1,5 @@
 # privacy-policy
-application privacy policy
+Metricbox privacy policy
 
 # Privacy Policy
 
